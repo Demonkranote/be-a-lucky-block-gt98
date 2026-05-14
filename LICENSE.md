@@ -1,4 +1,4 @@
-
+Download no-ban be a lucky block Script for be a lucky block, the best script available, featuring auto-heal and undetectable. This powerful tool ensures you have the upper hand
 
 
 
